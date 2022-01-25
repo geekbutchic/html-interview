@@ -3,7 +3,7 @@
 1. Who is your hero?
 Jason Bradley: Barrack Obama
 Barron Mckeon: Alexander The Great
-Me: AST Sayers
+Me: AST Bret Sayers
 
 1. If you could live anywhere, where would it be?
 Jason: Germany
